@@ -1,5 +1,5 @@
 👋    Hi, I’m @Syduta or Thibault Touzin.  
-🌱    I’m a web & web mobile developper !  
+🌱    I’m a web & web mobile developer !  
 💞️    I’m looking to collaborate on anything because i'm a noob and i need to get experienced.  
 📫    You can reach me on discord @Syduta#1552.  
 
